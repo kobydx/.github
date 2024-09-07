@@ -1,4 +1,30 @@
-## heya.
-woag
-im koby
-me and my friend (not telling you their name) are making a org :)
+## Kobydx
+
+The most stupid mods ever created comes with the source here for your needs
+
+
+
+
+
+
+
+
+
+
+
+
+
+Anyways
+
+
+
+
+
+
+
+
+
+
+
+> [!TIP]
+> We (dont) steal code, promise me
